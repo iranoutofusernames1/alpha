@@ -10,5 +10,3 @@ Anyone is free to contribute to Alpha! Whenever improving the main code, adding 
 
 # Use
 Use him anywhere as long as credit is given, he's pretty simple anyways.
-
-<img width="368" height="368" alt="image" src="https://github.com/user-attachments/assets/a84d206d-328b-4268-be57-c16d30860091" />
