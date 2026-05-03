@@ -10,3 +10,32 @@ Anyone is free to contribute to Alpha! Whenever improving the main code, adding 
 
 # Use
 Use him anywhere as long as credit is given, he's pretty simple anyways.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+# alpha
+<img src="https://art.ngfiles.com/images/6836000/6836755_2176773_sulfur-cretin_my-stupid-chud-son.545c792fd3399f76754271cfdd086701.webp?f1751660060" alt="My Stupid Chud Son (Artfight) by Sulfur-Cretin on Newgrounds"/>
